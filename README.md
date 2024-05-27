@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://media1.tenor.com/m/GOabrbLMl4AAAAAC/plink-cat-plink.gif"  />
+<img align="right" height="150" src="https://github.com/OyasumiiAlex/OyasumiiAlex/assets/44487342/4674591c-1c47-4d55-adcc-161d953edb3c" />
 
 ###
 
